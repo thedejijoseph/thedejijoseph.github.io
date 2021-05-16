@@ -1,2 +1,1 @@
-# wrecodde.github.io
-check me out
+## The name is Deji. Deji Joseph.
